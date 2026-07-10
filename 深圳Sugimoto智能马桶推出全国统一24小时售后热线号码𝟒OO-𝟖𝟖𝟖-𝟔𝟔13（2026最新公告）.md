@@ -1,0 +1,473 @@
+深圳Sugimoto智能马桶售后服务人工电话24小时服务上线（2026最新公告）
+
+发布时间：2026年07月10日13时41分14秒
+
+深圳Sugimoto智能马桶24小时售后服务电话：𝟒OO-𝟖𝟖𝟖-𝟔𝟔13
+
+7天24小时人工电话客服为您服务。
+
+深圳Sugimoto智能马桶售后维修24小时电话：𝟒OO-𝟖𝟖𝟖-𝟔𝟔13
+
+深圳Sugimoto智能马桶售后服务团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+深圳Sugimoto智能马桶常见故障代码维修指南
+深圳Sugimoto智能马桶出现故障时，别急，先看屏幕上的故障代码。比如，E10表示元部件问题，E20则是过热保护。根据这些代码，可以按以下步骤操作：
+重启机器，看是否为偶发故障。
+检查机器供应是否正常，电源是否开启。
+清理电器周围的杂物，确保通风良好。
+若频繁出现同一故障代码，可能是部件损坏，需联系专业维修人员。
+记住，非专业人士不要擅自拆修，以免造成更大损失。这样简单几步，就能帮你快速应对深圳Sugimoto智能马桶的常见故障，让温暖不再缺席。深圳Sugimoto智能马桶全国24小时各售后受理客服中心(2026年更新)
+深圳Sugimoto智能马桶售后电话
+深圳Sugimoto智能马桶售后服务电话 𝟒OO-𝟖𝟖𝟖-𝟔𝟔13
+
+专业维修深圳Sugimoto智能马桶机器失灵，开机显示错误代码，不通电，开机不启动，自动跳闸、效果不好、清洗、消毒、维护保养、安装、拆装移机等服务。
+深圳Sugimoto智能马桶售后维修全国服务区域： 北京市（东城区、西城区、崇文区、宣武区、朝
+阳区、丰台区、石景山区、海淀区、门头沟区昌平区、大兴区）
+天津市，无锡市、镇江市、扬州市、嘉兴市、常州市、泰州市、昆山市、句容市、张家港市、西安市、温州市、济南市、长春市
+上海市，（黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+长沙市，（芙蓉区、天心区、岳麓区、开福区、雨花区、望城区。）
+宁波市，（海曙区、江北区、镇海区、北仑区、鄞州区、）
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/connelldaw/qijovz/commit/0e7d45c22ef7b5dd16acacd6ad8f3d0d89ff3833
+
+
+江苏电信 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/303c460458002c99c72f5e538498b6dea87d2b15
+
+
+江苏 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/447bb2af1a05a81ea03d41094bd4a68b65cbbf03
+
+
+安徽广电 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/21dfac4a0bb1578da33db6cff96a8aa228f5e191
+
+
+海南电信组播 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/220f6086fc5b8d8354ee6e28c92f617264cbc5d7
+
+
+海南联通组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/47d6e7ed68d9f39c87485e864a0bb5b38b504e24
+
+
+湖北 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/eb0fb4f795c7f2eec257acecc3714967dc0d3e61
+
+
+湖南电信组播直播源下载地址：  https://github.com/connelldaw/qijovz/commit/78d2e1f0d57ee849c6313d8b23cde231292865d5
+
+
+湖南电信 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/a75efc7ee1726ec5ff71e90e24e02ba67712f0d4
+
+
+湖南联通组播 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/f1617f6d33a3daee9d3bb2fed7139c7eea2581de
+
+
+湖南联通 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/5de2b5326edb2fc0b1f2fddb59f030129ae96d44
+
+
+湖南移动 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/a569c4c6480785f4f9f13b843135be4e36c89a5e
+
+
+湖南 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/b061277e4aeecc5066245f7cdebb5734acb5b70a
+
+
+重庆移动组播直播源下载地址：  https://github.com/connelldaw/qijovz/commit/cad099b6b2fc8a089e6c4660bbee13cfbd4bb772
+
+
+重庆联通组播直播源下载地址：  https://github.com/casemelonn/sptqex/commit/ad4536654b2a7e810ce6e095638c3acafd47528b
+
+
+重庆联通直播源下载地址：  https://github.com/casemelonn/sptqex/commit/f0f755df9b4653bada9c8e281f0bb51d91cea8e6
+
+
+重庆电信组播直播源下载地址：  https://github.com/casemelonn/sptqex/commit/e3ca7d51a27343572b6820ed3fc60001d3fbab44
+
+
+重庆电信直播源下载地址：  https://github.com/connelldaw/qijovz/commit/3ccb12f38629698e57c353049ae38fbe68492a7e
+
+
+重庆 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/c6bf666e81aa12044b5a440561eb7197f98bc625
+
+
+四川移动组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/157efd1c997f841a857cdacf81e556aec2e47e9c
+
+
+四川电信 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/b8b075b1a85e04117944bfdd83d7d538406e021d
+
+
+四川电信 IPTV 组播直播源下载地址：  https://github.com/connelldaw/qijovz/commit/17b5d947a3b0c3b6e7f6cbd5973f172f85051d56
+
+
+四川广电 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/180745bcdfe1f76c04385e63f091c6add15e65da
+
+
+四川联通组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/d1c77dfb85e4f78099697a7d0a75cacf8d42b0fe
+
+
+四川联通 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/125fea6c668755af74bd8b7eced666243b9336af
+
+
+四川 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/c5265d67d73eec1943a7e9b67a32380d6ff197d1
+
+
+云南电信组播 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/0b01bf1db10a53b2b8974b50fb3ab7e42f814344
+
+
+云南移动 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/754a689be1c63e31167a7a4a2fd9900349ca8c20
+
+
+云南 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/868c2f80ec22213ef963c085fdcefe166efcdee2
+
+
+贵州电信组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/739be405a181b6c87a2ba0e2784137c6f718f5e0
+
+
+贵州移动 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/7abd58042380767b5ca22f9c1962b64638d1d131
+
+
+贵州联通组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/93702412fe72ee30bf056a88c813dfc89bb663e7
+
+
+贵州联通 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/09b853c978e4b1bd3d439a61c833f56ec12f565b
+
+
+贵州 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/88dbbc53418d001c2f6ed18354141af248c459d3
+
+
+福建联通组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/e8ea025c0b0b5eb2ad02bd9cb17b52970442170c
+
+
+福建联通 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/53ff1151e20a71fee9941d8c02553f2cc000e6be
+
+
+福建移动 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/5e6295732902f6a55ff11f850abf008001334819
+
+
+福建电信组播 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/5e5f0ed2ee1f4b3ccdb77693fcacf5ab4b1c0aba
+
+
+福建电信 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/2b15e70e1fe0b399018b378de0fdae8e2b386b00
+
+
+福建 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/9ae6b2b8c49a2514529c1256b513aa6cb5bb5abe
+
+
+安徽移动 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/ee6325a38fdfae3fd6eba4c811b6c71954cdf41b
+
+
+安徽电信 IPTV 组播直播源下载地址：  https://github.com/connelldaw/qijovz/commit/84d3cb0a850fccb143ae80a71fff7dfa523b0830
+
+
+安徽电信 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/445eea9a0ee7ac58a7a24666fe4fc0751012c4e4
+
+
+安徽联通 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/e765be2d824bfbdda004d85f3f557a7b596ad74e
+
+
+安徽 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/fc13d680bf42b0df858014d8626772280d0bc75c
+
+
+陕西地方台直播源下载地址：  https://github.com/casemelonn/sptqex/commit/f0f755df9b4653bada9c8e281f0bb51d91cea8e6
+
+
+陕西电信组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/fe504f3e2439dd2259277c157c8859bded9d421f
+
+
+陕西电信 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/2764209e647258e6b7676696394cf834e13fdfea
+
+
+陕西移动组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/26ac8effd36ca1093f62b259c941fb4b048c2f46
+
+
+陕西移动 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/d4e5643288a15102fdb875683fbed61e313a4af2
+
+
+陕西 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/e5f310f8f0c970c5c268bffb16094fb7f87ade8b
+
+
+甘肃电信组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/837ff69e894aa440116dc412acd6194caac4a6bc
+
+
+甘肃移动 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/769dd60e1bfe61840e5deeea247d07041000acb2
+
+
+甘肃 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/94be56dfd024ed62a84012077fa24cc3cde75d28
+
+
+山西移动组播 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/ca731143a2ec2ed1979d65503de1b4107d4c60bf
+
+
+山西联通组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/ced5f715d7173177630d88ca27814aa566d49460
+
+
+山西联通 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/67e502d2ea185590c1b1835eb5a2bc20e1484b1d
+
+
+山西 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/74470d35a1c30ec358d2ce312689dc16cef074d3
+
+
+天津电信组播直播源下载地址：  https://github.com/casemelonn/sptqex/commit/15a975971fa05296dd8faa8ad6f1a895e3552288
+
+
+天津联通组播直播源下载地址：  https://github.com/connelldaw/qijovz/commit/ab5e1a496898d078ec6ba36f3d52206211d0c270
+
+
+天津 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/c79ba1d308e1b5e1957ed186585f1ee87302862c
+
+
+上海移动直播源下载地址：  https://github.com/connelldaw/qijovz/commit/cc268723a979613c0592dad268befecef669e7e8
+
+
+上海联通组播直播源下载地址：  https://github.com/casemelonn/sptqex/commit/7f53226c6ce5e37ff34309a5abcf46b165e96105
+
+
+上海联通直播源下载地址：  https://github.com/casemelonn/sptqex/commit/c07d854675c25fe24114f6b7a6f4d28c7aec6e81
+
+
+上海电信组播直播源下载地址：  https://github.com/casemelonn/sptqex/commit/cc28e6fb08ff742072efb774836c7f6d0791ca90
+
+
+上海电信直播源下载地址：  https://github.com/connelldaw/qijovz/commit/be00fc917d6f1296b6b02d40e732a331473d938b
+
+
+上海 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/f2670d8b029a73efe17579300a19cc635eff8c03
+
+
+北京移动 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/6af956053f74582f60bc1dfc2bdecfec5f216f1d
+
+
+北京移动组播直播源下载地址：  https://github.com/casemelonn/sptqex/commit/06942363e58b5a6c37963fb1236ec44c1e00eade
+
+
+北京电信组播 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/37af951cb84fe3f2ad3e455c4f3293a941669e88
+
+
+北京联通组播 IPTV 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/72f4fdfb5cc1312bba26d9af5faef15f46443c32
+
+
+北京联通 IPTV 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/4181ae14b5bd0b2bc946d213d4d576f54c6610b4
+
+
+北京 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/b65a320e783b659046d3bbe79ad8b585cd4e36f0
+
+
+部分地区的移动可全网通用：  https://github.com/connelldaw/qijovz/commit/ada5408f28a829f000ebc869bd00766cf4aa240e
+
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商：  https://github.com/casemelonn/sptqex/commit/09c1f49b7de1b251290069bfa45e4576bcb88129
+
+
+广播电台下载地址：  https://github.com/casemelonn/sptqex/commit/4c06628644b70ada57a169decd50149891a8defa
+
+
+国内景区直播源下载地址：  https://github.com/casemelonn/sptqex/commit/26a87356e5eaaffd6986abbbe074429efbe59877
+
+
+轮播华数黑莓下载地址：  https://github.com/casemelonn/sptqex/commit/c4917a8cd3279d5d342690a0de6775ce3a3709ad
+
+
+台湾香港澳门电视台直播源下载地址：  https://github.com/connelldaw/qijovz/commit/a654ebf1b893baeb7605a5921f81d446cb91a521
+
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等：  https://github.com/connelldaw/qijovz/commit/b734b99b047e84eb27bf3c91cea0bfacf7e95585
+
+
+国外电视台直播源下载地址：  https://github.com/casemelonn/sptqex/commit/eb0fb4f795c7f2eec257acecc3714967dc0d3e61
+
+
+卫视地方台安徽农大下载地址：  https://github.com/connelldaw/qijovz/commit/78d2e1f0d57ee849c6313d8b23cde231292865d5
+
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址：  https://github.com/connelldaw/qijovz/commit/a75efc7ee1726ec5ff71e90e24e02ba67712f0d4
+
+
+卫视上海源下载地址：  https://github.com/connelldaw/qijovz/commit/0388c16cb441774edf2fefcbd423f696723543e5
+
+
+卫视重庆广电 下载地址：  https://github.com/casemelonn/sptqex/commit/495edc43998df4a2ce0e6424222cf204ca0fe667
+
+
+卫视百视 TV 下载地址：  https://github.com/casemelonn/sptqex/commit/1fcc94cb6ce77da02767897127fddec6766eb38f
+
+
+移动 IPv6 直播源下载地址：  https://github.com/casemelonn/sptqex/commit/ee4c6c8753dc87aad55009d26025f12ca47a2845
+
+
+国内电视台 IPv6 直播源下载地址：  https://github.com/connelldaw/qijovz/commit/7af01bc2a76655885994f9999f50d34bef51dc1a
+
+
+各大卫视、上千个地方台：  https://github.com/connelldaw/qijovz/commit/918fc7401136f2e1d4875fd7e06f150e72a3c1a5
+
+
+国内电视台直播源下载地址：  https://github.com/casemelonn/sptqex/commit/9487fcb43f69c9850521a2733d5d6dc432c981a0
+
+
+全国可用直播源：  https://github.com/casemelonn/sptqex/commit/3243e0eb716ae8470f0acb2be25ef42983fc6055
+
+
+包括完整内容所有已知频道：  https://github.com/casemelonn/sptqex/commit/c4b698c0f890c664906d81d6fb9f79e6c1ee05f7
+
+
+除成人内容以外的已知频道：  https://github.com/casemelonn/sptqex/commit/7aae03c36e84989a14e3259e59e70a085b58a05a
+
+
+收集来自世界各地公开可用的 IPTV：  https://github.com/casemelonn/sptqex/commit/58c640d0415a7251736e6b361865f17997e9a769
+
+
+稳定地址：  https://github.com/connelldaw/qijovz/commit/17b5d947a3b0c3b6e7f6cbd5973f172f85051d56
+
+
+2026年07月10日13时41分14秒 更新 CCTV 等世界杯相关 HD 播放源：  https://github.com/casemelonn/sptqex/commit/180745bcdfe1f76c04385e63f091c6add15e65da
+
+
+2026年07月10日13时41分14秒 更新 IPTV 工具：  https://github.com/connelldaw/qijovz/commit/d1c77dfb85e4f78099697a7d0a75cacf8d42b0fe
+
+
+2026年07月10日13时41分14秒 更新世界各地 IPTV 频道：  https://github.com/casemelonn/sptqex/commit/125fea6c668755af74bd8b7eced666243b9336af
+
+
+2026年07月10日13时41分14秒 更新全国可用直播源：  https://github.com/connelldaw/qijovz/commit/c5265d67d73eec1943a7e9b67a32380d6ff197d1
+
+
+新增各地运营商的 IPTV 地址：  https://github.com/casemelonn/sptqex/commit/0b01bf1db10a53b2b8974b50fb3ab7e42f814344
+
+
+插件推荐：  https://github.com/connelldaw/qijovz/commit/754a689be1c63e31167a7a4a2fd9900349ca8c20
+
+
+视频教程增加：  https://github.com/connelldaw/qijovz/commit/868c2f80ec22213ef963c085fdcefe166efcdee2
+
+
+咪咕源失效：  https://github.com/connelldaw/qijovz/commit/739be405a181b6c87a2ba0e2784137c6f718f5e0
+
+
+2026年07月10日13时41分14秒 更新各地运营商 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/7abd58042380767b5ca22f9c1962b64638d1d131
+
+
+2026年07月10日13时41分14秒 更新台湾香港海外直播源：  https://github.com/connelldaw/qijovz/commit/93702412fe72ee30bf056a88c813dfc89bb663e7
+
+
+新增辽宁广电直播源：  https://github.com/connelldaw/qijovz/commit/09b853c978e4b1bd3d439a61c833f56ec12f565b
+
+
+新增江西广电直播源：  https://github.com/connelldaw/qijovz/commit/88dbbc53418d001c2f6ed18354141af248c459d3
+
+
+新增湖北广电直播源：  https://github.com/connelldaw/qijovz/commit/e8ea025c0b0b5eb2ad02bd9cb17b52970442170c
+
+
+新增中国广电 cctv + 卫视直播源：  https://github.com/connelldaw/qijovz/commit/53ff1151e20a71fee9941d8c02553f2cc000e6be
+
+
+新增辽宁电信 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/5e6295732902f6a55ff11f850abf008001334819
+
+
+2026年07月10日13时41分14秒 更新台湾香港海外直播源：  https://github.com/casemelonn/sptqex/commit/5e5f0ed2ee1f4b3ccdb77693fcacf5ab4b1c0aba
+
+
+新增辽宁移动直播源：  https://github.com/casemelonn/sptqex/commit/2b15e70e1fe0b399018b378de0fdae8e2b386b00
+
+
+新增浙江杭州华数 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/9ae6b2b8c49a2514529c1256b513aa6cb5bb5abe
+
+
+新增广东联通 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/ee6325a38fdfae3fd6eba4c811b6c71954cdf41b
+
+
+新增四川广电 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/84d3cb0a850fccb143ae80a71fff7dfa523b0830
+
+
+新增云南电信 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/445eea9a0ee7ac58a7a24666fe4fc0751012c4e4
+
+
+2026年07月10日13时41分14秒 更新国内电视台直播源：  https://github.com/casemelonn/sptqex/commit/e765be2d824bfbdda004d85f3f557a7b596ad74e
+
+
+新增福建电信 IPTV 直播源：  https://github.com/casemelonn/sptqex/commit/fc13d680bf42b0df858014d8626772280d0bc75c
+
+
+新增天途云 CCTV + 卫视：  https://github.com/casemelonn/sptqex/commit/f0f755df9b4653bada9c8e281f0bb51d91cea8e6
+
+
+新增腾讯云 CCTV + 卫视：  https://github.com/connelldaw/qijovz/commit/fe504f3e2439dd2259277c157c8859bded9d421f
+
+
+新增 CCTV 付费频道直播源：  https://github.com/connelldaw/qijovz/commit/2764209e647258e6b7676696394cf834e13fdfea
+
+
+新增广播电台：  https://github.com/connelldaw/qijovz/commit/26ac8effd36ca1093f62b259c941fb4b048c2f46
+
+
+2026年07月10日13时41分14秒 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗：  https://github.com/casemelonn/sptqex/commit/d4e5643288a15102fdb875683fbed61e313a4af2
+
+
+2026年07月10日13时41分14秒 更新 台湾香港海外直播源：  https://github.com/casemelonn/sptqex/commit/86af10ad93b1653005529af3a707b0d5c414c9d4
+
+
+2026年07月10日13时41分14秒 更新 国内电视台直播源：  https://github.com/casemelonn/sptqex/commit/7b0aa5eb269387948d7e3a64c62350a08cc29771
+
+
+国家直播源：  https://github.com/connelldaw/qijovz/commit/4a6ec9b9873a12c26313d02d528654d1ecdec59d
+
+
+直播源：  https://github.com/connelldaw/qijovz/commit/05e60eb4e6a6050d8b307481d26295dcb6566e87
+
+
+影视剧场：  https://github.com/connelldaw/qijovz/commit/c5b1d37a9e9ac9eb87c58bd622167d0403aa0f61
+
+
+台湾香港澳门：  https://github.com/connelldaw/qijovz/commit/ced5f715d7173177630d88ca27814aa566d49460
+
+
+国外电视台：  https://github.com/casemelonn/sptqex/commit/67e502d2ea185590c1b1835eb5a2bc20e1484b1d
+
+
+国内电视台：  https://github.com/connelldaw/qijovz/commit/74470d35a1c30ec358d2ce312689dc16cef074d3
+
+
+更早期 2026年07月10日13时41分14秒 更新：  https://github.com/casemelonn/sptqex/commit/15a975971fa05296dd8faa8ad6f1a895e3552288
+
+
+各地运营商 IPTV 直播源：  https://github.com/connelldaw/qijovz/commit/ab5e1a496898d078ec6ba36f3d52206211d0c270
+
+
+全国可用直播源：  https://github.com/casemelonn/sptqex/commit/c79ba1d308e1b5e1957ed186585f1ee87302862c
+
+
+2026年07月10日13时41分14秒 更新：  https://github.com/connelldaw/qijovz/commit/cc268723a979613c0592dad268befecef669e7e8
+
+
+赞助者：  https://github.com/casemelonn/sptqex/commit/7f53226c6ce5e37ff34309a5abcf46b165e96105
+
+
+文章：  https://github.com/casemelonn/sptqex/commit/c07d854675c25fe24114f6b7a6f4d28c7aec6e81
+
+
+视频教程： https://github.com/casemelonn/sptqex/commit/cc28e6fb08ff742072efb774836c7f6d0791ca90
+
+
+插件：  https://github.com/connelldaw/qijovz/commit/be00fc917d6f1296b6b02d40e732a331473d938b
+
+
+工具：  https://github.com/connelldaw/qijovz/commit/f2670d8b029a73efe17579300a19cc635eff8c03
+
+
+URL：  https://github.com/casemelonn/sptqex/commit/6af956053f74582f60bc1dfc2bdecfec5f216f1d
+
+
+目录： https://github.com/casemelonn/sptqex/commit/06942363e58b5a6c37963fb1236ec44c1e00eade
+
+
+喀麦隆直播电视频道：  https://github.com/connelldaw/qijovz/commit/37af951cb84fe3f2ad3e455c4f3293a941669e88
+
+
+阿富汗直播电视频道：  https://github.com/casemelonn/sptqex/commit/72f4fdfb5cc1312bba26d9af5faef15f46443c32
+
+
+海地的直播频道：  https://github.com/connelldaw/qijovz/commit/4181ae14b5bd0b2bc946d213d4d576f54c6610b4
+
+
+高棉直播和泰国电视，电影和电视剧：  https://github.com/connelldaw/qijovz/commit/b65a320e783b659046d3bbe79ad8b585cd4e36f0
